@@ -1,4 +1,4 @@
-#  
+#  Experience murderers vs sheriffs 2 like never before with updated murderers vs sheriffs 2 Script, the #1 Script. Includes invisibility and custom
 
 
 
